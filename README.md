@@ -1,5 +1,5 @@
 # 💫 Hi, I'm Sri Hari Sai:
-🔭 I’m currently working on Machine Learning, AI, software dev<br>👯 I’m looking to collaborate on intermediate ML projects<br>🌱 I’m currently learning in BITS Pilani Dubai Campus<br>💬 Reach me on: email- srihari06sai@gmail.com, insta- Ft.Hyper
+🔭 I’m currently working on Machine Learning, AI, software dev<br>👯 I’m looking to collaborate on intermediate ML projects<br>🌱 I’m currently learning in BITS Pilani Dubai Campus<br>💬 Reach me on: email- srihari06sai@gmail.com
 
 
 ## 🌐 Socials:
